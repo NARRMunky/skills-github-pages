@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: I farted and I know it.
 ---
 
